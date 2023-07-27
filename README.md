@@ -1,0 +1,6 @@
+![image](https://github.com/Laxmisneha05/jewelry_store.github.io/assets/113546595/d5ee6f8e-d7ef-44dc-a4d2-4aba29ca057e)
+![image](https://github.com/Laxmisneha05/jewelry_store.github.io/assets/113546595/f09b081b-2402-4ad8-8470-c2f6f6d5c85d)
+![image](https://github.com/Laxmisneha05/jewelry_store.github.io/assets/113546595/9cb31aa4-d23f-48d5-a1c6-e2ac34d1592c)
+![image](https://github.com/Laxmisneha05/jewelry_store.github.io/assets/113546595/1e16a25c-32f4-4cd0-93de-001e149b81cc)
+![image](https://github.com/Laxmisneha05/jewelry_store.github.io/assets/113546595/6951ef45-3a63-47fb-bf46-b9c45cba65b5)
+![image](https://github.com/Laxmisneha05/jewelry_store.github.io/assets/113546595/fdab4c80-a9ab-4b9f-8a06-dcc094ea5b61)
